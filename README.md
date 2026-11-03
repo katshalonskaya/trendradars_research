@@ -1,0 +1,1 @@
+# trendradars_research
